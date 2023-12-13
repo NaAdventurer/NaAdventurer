@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NaAdventurer
-- 👀 I’m interested in debating,volunteering, learning something new and reading books 
+- 👀 I’m interested in debating,volunteering, learning something new and reading books. Now I am reading Fourth Wing 
 - 🌱 I’m currently learning python and English
 - 📫 How to reach me meerimomurzakova.a@gmail.com
 
